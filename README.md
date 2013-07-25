@@ -5,8 +5,8 @@ Chat Rules
   2. Don't spam the chat room or bot will be kicked, don't try to bypass the bot
   3. Don't post any media sites if a DJ is playing without their consent
   4. Respect all admins, If there is a problem.. PM them
-  5. Do not post any drug, porn, or illeagle media content in chat
-  6. Welcome to post gifs and pictures that are not considered "illeagle" read above for better detail
+  5. Do not post any drug, porn, or illegal media content in chat
+  6. Welcome to post gifs and pictures that are not considered "illegal" read above for better detail
 
 We hope this gives you a general outline of what is allowed. We like to keep Fokus FM fun and informative about the
 music scene without getting out of hand.. So enjoy!
